@@ -5,6 +5,8 @@
 - Currently reversing anti-cheats such as BattlEye since it sucks. 😂
 - Professional C++ Developer. 😎🥂
 
-*Contacts*\n
+*Contacts*
+
 Discord: sharkin#0001
+
 Telegram: Don't have one yet.
