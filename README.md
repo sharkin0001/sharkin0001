@@ -7,6 +7,4 @@
 
 *Contacts*
 
-Discord: sharkin#0001
-
-Telegram: Don't have one yet.
+https://discord.c99.nl/widget/theme-1/978031665140076624.png
