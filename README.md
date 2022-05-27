@@ -7,4 +7,4 @@
 
 *Contacts*
 
-https://discord.c99.nl/widget/theme-1/978031665140076624.png
+Discord: sharkin#0001
